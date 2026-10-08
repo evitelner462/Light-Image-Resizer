@@ -206,4 +206,4 @@ Light Image Resizer is offered as a **full free version** with all features and 
 Don't miss out on transforming your images effortlessly. **Download Light Image Resizer today and unlock your creative potential!**
 
 ---
-**Last updated:** 2026-10-07 22:41:21 UTC
+**Last updated:** 2026-10-08 02:29:34 UTC
